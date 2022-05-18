@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @schmilly
-- 👀 I’m interested in a lot of things, Politics, books, coding, hacking, gaming and urban design
+- 👀 I’m interested in a lot of things, Politics, books, coding/hacking, art, gaming and city design!
 - 🌱 I’m currently learning Cybersecurity and economics at UWA!
 - 💞️ I’m looking to collaborate on nothing! I am too busy studying ATM
 - 📫 How to reach me dm me on twitter! @schmilly2
