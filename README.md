@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @schmilly
 - 👀 I’m interested in a lot of things, Politics, books, coding/hacking, art, gaming and city design!
 - 🌱 I’m currently learning Cybersecurity and economics at UWA!
-- 📫 dm me on twitter! @schmilly2
 - 📨 For more formal contact please send me an email :) william.f.s.bake@gmail.com
 
 <!---
